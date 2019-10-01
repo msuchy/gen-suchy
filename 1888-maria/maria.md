@@ -9,4 +9,4 @@ Registros Nascimento
 - [Pagina 2](MariaZoom2.png)
 
 
-http://www.portafontium.eu/iipimage/30062345/horsice-11_2740-n
+[Documento Original](http://www.portafontium.eu/iipimage/30062345/horsice-11_2740-n)

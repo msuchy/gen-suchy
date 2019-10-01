@@ -10,5 +10,4 @@ Registros Nascimento
 - [Pagina 2](BarbaraZoom2.png)
 - [Detalhe](Capture.PNG)
 
-
-http://www.portafontium.eu/iipimage/30062345/horsice-11_2520
+[Documento Original](http://www.portafontium.eu/iipimage/30062345/horsice-11_2520)
